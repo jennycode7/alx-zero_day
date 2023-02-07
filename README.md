@@ -1,2 +1,2 @@
 my first readme
-this has been i look forward to more
+this has been fun and i look forward to more
